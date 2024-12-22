@@ -58,3 +58,9 @@ Com o jogo instalado, basta abri-lo e explorar tudo que a versão 1.21.44 tem a 
 ## Considerações Finais
 
 A versão Minecraft 1.21.44 APK traz uma série de melhorias e novos recursos que tornam o jogo ainda mais viciante e cheio de possibilidades. Os novos biomas, mobs e opções de mobílias, combinados com o melhor desempenho gráfico, são um presente para a comunidade de jogadores que ama explorar cada detalhe desse vasto mundo virtual. Além disso, a compatibilidade com mods e a facilidade de instalação via APK tornam essa versão especialmente interessante para quem busca uma experiência mais personalizada.
+
+[Xit FF Mobile APK](https://github.com/Xit-FF-Mobile-Game)
+
+[3A Cloud Game APK](https://github.com/Full-3A-Cloud-Game-APK)
+
+[Bomba Patch APK](https://github.com/Bomba-Patch-APK-2025)
